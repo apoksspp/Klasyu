@@ -1,0 +1,2 @@
+# Klasyu
+Mavi yok 
